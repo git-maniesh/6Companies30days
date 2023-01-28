@@ -25,5 +25,6 @@ A special surprise gift for top performers.
 Special 1 on 1 mentoring session on how to plan the things after this challenge - related to projects , revision , CS Fundamentals, Interview Tips , etc.
 
 Posts
-1. Challenge Acceptance Post
-![Screenshot_2023-01-28-21-14-29-91_0b2fce7a16bf2b728d6ffa28c8d60efb](https://user-images.githubusercontent.com/64514465/215276140-17bc1c2f-e8c2-4bf5-9e90-715de4171f5a.jpg)
+# Challenge Acceptance Post
+
+###![Screenshot_2023-01-28-21-14-29-91_0b2fce7a16bf2b728d6ffa28c8d60efb](https://user-images.githubusercontent.com/64514465/215276140-17bc1c2f-e8c2-4bf5-9e90-715de4171f5a.jpg)
