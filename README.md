@@ -27,4 +27,6 @@ Special 1 on 1 mentoring session on how to plan the things after this challenge 
 Posts
 # Challenge Acceptance Post
 
-###![Screenshot_2023-01-28-21-14-29-91_0b2fce7a16bf2b728d6ffa28c8d60efb](https://user-images.githubusercontent.com/64514465/215276140-17bc1c2f-e8c2-4bf5-9e90-715de4171f5a.jpg)
+https://twitter.com/Maniesh_M/status/1610083123861295104?t=NZiHXP0pz3hEkPsaKOaVTg&s=19
+
+![Screenshot_2023-01-28-21-14-29-91_0b2fce7a16bf2b728d6ffa28c8d60efb](https://user-images.githubusercontent.com/64514465/215276140-17bc1c2f-e8c2-4bf5-9e90-715de4171f5a.jpg)
